@@ -1,3 +1,3 @@
 -
-Hi, I’m @RzhangZzz
+Hi, I’m @RzhangZzz.
 A manufacturing worker in Foshan
